@@ -6,7 +6,7 @@
 
 - 🌱 Currently polishing my coding and analytics skills
 - 🥅 2021 Goals : Have a good CP profile & Contribute to Open Source projects
-- 😄 Pronouns: Passionate | Organized | Ambitious | Nerdy
+- 😄 Pronouns: Passionate | Organized | Ambitious | Service-focused
 - 📫 How to reach me - [ritikbandwal@gmail.com](mailto:ritikbandwal@gmail.com) 
 - 🎮 I love to play thriller computer games.
 - ⚡ Fun fact: Sadly there isn't anything fun about me!
